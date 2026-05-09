@@ -1,4 +1,4 @@
-
+Enhance Evernote for macOS with Evernote for macOS premium Automation - focus mode and custom themes, the #1 automation. Includes focus mode and custom themes for a smoother
 
 
 
